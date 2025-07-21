@@ -1,0 +1,1 @@
+# Patikadev-Phyton-Temel-Duzey-Bitirme-Projesi
